@@ -1,4 +1,4 @@
-# Oi eu sou LucasGsfeitoza-03
+# Oi eu sou Lucas Gabriel da Silva Feitoza
 
 - 👀 Começando a me interessar ainda mais por IA e todo fantastico mundo da tecnológia.
 - 🌱 Cursando segundo período de ciência da computação @UnifavipWyden.
